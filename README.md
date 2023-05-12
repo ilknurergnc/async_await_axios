@@ -1,1 +1,0 @@
-C:\Users\Yeni\Desktop\FrontEnd Ödevler\REACT\Giris-Odevi\Sunu1.png
